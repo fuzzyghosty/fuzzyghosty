@@ -3,7 +3,7 @@
 - 🔭 I’m currently working on learning: various things
 - 🖥 Im currently working on stuff. I don't know just things.
 - 💬 Ask me about Music Production
-- 📫 How to reach me: sky@skyvincent.com
+- 📫 How to reach me: @fuzzyghosty on discord
 - 😄 Pronouns: She/Her
 
 ### Stats:
